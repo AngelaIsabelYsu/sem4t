@@ -25,8 +25,11 @@ puede llevar a una falta de comunicación y resolución de problemas.
 💬 Parte 2: Mi análisis de la otra persona
 En esta parte, analiza a tu compañero/a (o alguien cercano) y responde:
 Fortalezas heredadas: ¿Qué fortalezas crees que esa persona ha heredado de su familia?
+
 Creatividad: Innovación y capacidad para resolver problemas de manera original. 🎨
 Apoyo: Presencia constante en momentos difíciles. 🌈
+
 Debilidades heredadas: ¿Qué debilidades piensas que esa persona ha heredado de su familia?
+
 Falta de comunicación: Dificultad para expresar sentimientos y necesidades. 💬
 Poca tolerancia a la frustración: Dificultad para manejar decepciones o fallos. 🌀
