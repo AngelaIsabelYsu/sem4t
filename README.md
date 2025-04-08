@@ -31,5 +31,5 @@ Apoyo: Presencia constante en momentos difíciles. 🌈
 
 Debilidades heredadas: ¿Qué debilidades piensas que esa persona ha heredado de su familia?
 
-Falta de comunicación: Dificultad para expresar sentimientos y necesidades. 💬
+Falta de comunicación: Dificultad para expresar sentimientos y necesidades. 💬 
 Poca tolerancia a la frustración: Dificultad para manejar decepciones o fallos. 🌀
